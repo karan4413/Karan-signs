@@ -1,2 +1,3 @@
 # Karan-signs
-I am intrest.  for. computer science. find. like video editing 
+I am intrest.  for. computer science. field. like video editing 
+author  by karan
